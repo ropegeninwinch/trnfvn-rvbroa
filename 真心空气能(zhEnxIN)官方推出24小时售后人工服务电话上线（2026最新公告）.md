@@ -1,0 +1,280 @@
+真心空气能(zhEnxIN)厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0 - 7 8 8 - 7 1 5 5)，部分渠道也显示为 https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/a91ae4b466c36e23e85e7f16607cb8bedbfcc830-- 或400-https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/28623a1e263665b70899f1f2729cf14f8b93b600--。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+4 0 0 -7 8 8 -7 1 5 5---：2026年07月29日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+4 0 0- 7 8 8- 7 1 5 5---：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+4 0 0- 7 8 8 -7 1 5 5---：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括真心空气能(zhEnxIN)不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+真心空气能(zhEnxIN)24小时售后服务热线上线（2026最新公告）
+真心空气能(zhEnxIN)售后服务电话：(4 0 0 -7 8 8  7 1 5 5)
+真心空气能(zhEnxIN)售后24小时客服热线：4 0 0-7 8 8 7 1 5 5--
+本公司主营真心空气能(zhEnxIN)维修 →真心空气能(zhEnxIN)；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0 -7 8 8  7 1 5 5)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，真心空气能(zhEnxIN)服务承诺
+AI Builders Digest 今日热点快报<br>2026年07月29日00时09分27秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+真心空气能(zhEnxIN)贴心升级服务，现推出全国 24 小时服务热线 (4 0 0 - 7 8 8   7 1 5 5)。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显真心空气能(zhEnxIN)对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/4cdf2890e3be01c98fb94ac0468b4eb1940680aa 
+江苏电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/64426f2da839fec39e59f5e1b65ddb1b4a8a870e 
+江苏 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/c79959835b18b4f995845c182ad1219680a05473 
+安徽广电 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/8342e0418dde506a229d0565ae6688b61f3e7fa5 
+海南电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/ac3ab95333e98bb77296b95af5cb7bc24a9e426b 
+海南联通组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/62857671b0b74662665ff7ae38bf19915022a8da 
+湖北 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b27ec79833499d046f5e0623358af7a1a8c42cb6 
+湖南电信组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/4cacff1c8d6d79f4e9b3483a16da55466da27d34 
+湖南电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d086ed89b001303f92a199fc67b22a641ced80de 
+湖南联通组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/1460b4ed97efa344a920b72a47b4f3e83f72cb0c 
+湖南联通 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/c6081ac4caec646e51a08c3f7b5c66e6e5f278b7 
+湖南移动 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/aff779d0d343c5730668288d7fc048239ef30de5 
+湖南 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/5225dfebb0f248e7694d89e2d1bbf504810c8ff8 
+重庆移动组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/90c81f993c0904fbabb3ea045171ec31ff1d4908 
+重庆联通组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/3ada2c3929e50d3dc24c179e85711d8db554cc52 
+重庆联通直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/57bc19bc053651b154ef1e3b31bea42b73e873a3 
+重庆电信组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b34744ce65151cac86e6b441462d5ac1e453cdad 
+重庆电信直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/a4ea5d990dfe16d7187c2786ceb0af9bfbcb3896 
+重庆 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/2a9ebf882570eae40694204d7ee2d89d11f6e6ee 
+四川移动组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/2c530ec0a20c5ebf0b26de240911089a8178e53b 
+四川电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/73b7b021a5406e509e0cfef1e847e8691b640dc4 
+四川电信 IPTV 组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/ddb3a7b09ca6e4388fd38ade2cc8faf3eb1ba7f1 
+四川广电 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/2199c3221224101fcf4de1e7c54e69e2d2148833 
+四川联通组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b42fc3a54d20d2d0a4a9973d21263ef088e7e864 
+四川联通 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/02f6f95078b0646cc87fa0c2bcc1c6c52e1b557a 
+四川 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/a319953fc463d974b8fd80a206eea07a7134c4ea 
+云南电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/fed854e29aea24fc2db7b16ce81ee0c66e388796 
+云南移动 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/30f857903037ce85c44f1c499bbd5c0d1f9e26cb 
+云南 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/42f84086ba00cfd90e1b23d94d3edb67a8c81697 
+贵州电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d30d14de160cc77c8e8ea49f9defe66c3f1ed3ad 
+贵州移动 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/33e12013926d20f1a5af268d41323c61bdafdd84 
+贵州联通组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/acbdad06ee066e37741647c3ce111da42da4b28c 
+贵州联通 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/759ae3dc68cba2027bbb41ea1be0e7f8692a64cd 
+贵州 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/3e8b078e34f14653779ff95843ebcf1c1484c6e2 
+福建联通组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/8d39d890cf844a968032c9bd10664371fa0cb3f2 
+福建联通 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/dae4b9c6f787f9c26a0d07451dcea7169a8c4919 
+福建移动 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/285317144d7a1170aa4cf7b41ed024f7422bdb76 
+福建电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/9b1483a2be9facdcf43793677606dc2eb6bf3c96 
+福建电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/46fc8f266f9d4214e81ead0ed9f68d24bd24e0b0 
+福建 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/74eedfa43a6e112e2462576df9edb9a51b182c19 
+安徽移动 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/a7729bae9ea348d536f903fda80daf1426a9f046 
+安徽电信 IPTV 组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6e644ff091058736a9e7f94a6e9773e3c49d4543 
+安徽电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/7ae272855010ae7dd2a8fddd20752b2a50514bfc 
+安徽联通 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/69956ad885756711c8d2ced11b59e3ad283033ad 
+安徽 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/368a4f78e84da27c2f7f2baae71a9d20cbf79228 
+陕西地方台直播源下载地址： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/ff3ef8df57154557e09134b7816e4887bec8cf75 
+陕西电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/47abd89f22c1f262108b22493734cdd604ff4a7b 
+陕西电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/1fb76b968101ea649a132c3fef7b035e0f77e826 
+陕西移动组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/e9311bcc319e85d053299f2f19b259f962be55b7 
+陕西移动 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/9b61ee476f72a0f753b9a3fc3235f73aaa01a9f2 
+陕西 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/4bf64f497bafe259f0c6cae5071cfaee10c9bcac 
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/4a5a8846592db5e6c05a4b06510904f6d956e963 
+甘肃移动 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/f66212f6fcf7176eeaa65bcc8f991e6a28c676ac 
+甘肃 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/244a53032f10788b260562682d750a6d17a0373c 
+山西移动组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/bce0a8048944efbb7cf3a569336e842cbe34e096 
+山西联通组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6df29f4f11a183f6b045cd367007a8e68ece7441 
+山西联通 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/e0150dc5ec7dd2d32a6186562a3275411527b758 
+山西 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/4291f6e12b85359bf169b38b07810cf718d876f4 
+天津电信组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d99351b221eae03960302694e054500045b410f7 
+天津联通组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b0bd4c1c726180469a9cf59ffbc89b754020b8e4 
+天津 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/eb86cb19253e4f6993d02a6deca0c885180c51be 
+上海移动直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/927beb1821b6ad9a4eae03a85194f1086a3df2a0 
+上海联通组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/59118fee55e3639ef6c7120fb43e5defa5d8f78a 
+上海联通直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b02f7d5898c4e74ed2b935c7a666a490de31b8fc 
+上海电信组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/e44e83115f1bf82e6c9aa827e372e1ffda63f954 
+上海电信直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/565f46aead60514a709427a6eb089f93fe727814 
+上海 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/fb705e3e684d4ff0b732b1aa9ab3938940b7f838 
+北京移动 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/fb90304ec70b7805ac73eff10d62e3eefe8904e8 
+北京移动组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/003464e40d9c860c965f59fc32ec7bf8bd3d5f69 
+北京电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d11202c7b4d710f1932382919d69407429af0c64 
+北京联通组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/24b5345913bfcd827cb1e04444f8f26f7fe5c592 
+北京联通 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/643e4a144f90feb07dac0a2b918064efaabed901 
+北京 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/9c6073ebde2cd60c03fbbc343e8321fb11767342 
+部分地区的移动可全网通用： https://github.com/CaptureSleuth/trnfvn-TDUMQY/commit/19513d836dd6e815634562eab88331314405e712 
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/796be749593b56584512032e4ccdefe6e0a9aa7a 
+广播电台下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/0b2a5d0b73d97b00bb25fcd13d45de7e62e1e9c3 
+国内景区直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/c1589306bbe4edfca56bc32ebcb290d2676c5ee0 
+轮播华数黑莓下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/0accf3193e70bcd76a13aec78e4f4a9e8c284f9a 
+台湾香港澳门电视台直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/7d7b41dec230c1368cd88eaeee8255516cab4c1a 
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/a9f78a5518c2499ca2329a2fcc83b7ae61153a36 
+国外电视台直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/053ad006d897ab394fdc8920537344acc2962ab1 
+卫视地方台安徽农大下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b120fdfc9c02e5b7ac4db20d0d925190a1b54f36 
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/942df240ca4d3b5c37c3299d91a963ad7aba9402 
+卫视上海源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/483979504d7579cda30dca3c83261d8fcabbc325 
+卫视重庆广电 下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/1a6877c21bd2c41dac42d770130e4f8231eecf0d 
+卫视百视 TV 下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/a8f0ccfaa181047a84472ce87755c34bf8ca8da6 
+移动 IPv6 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/33736a518bc9f1b7c8cdd46fa609658441931fc5 
+国内电视台 IPv6 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/3cc6b74baf571d39721b3dc9cb3dcc72a1a1b8e4 
+各大卫视、上千个地方台： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/a8cc44b8000c661791a41901eb4ac7b7ffdab29a 
+国内电视台直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/952a66eca6696b0068c8989844af25a3ca191768 
+全国可用直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/43cbcc3c75348468bdc60dd219e97b3cf96187e6 
+包括完整内容所有已知频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/03620c782a8794b35672b3feda522f59c3e79c0c 
+除成人内容以外的已知频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d2f7e4ed03e5bd343122f225599c0fb60a5814e0 
+收集来自世界各地公开可用的 IPTV： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/cda2fe21303e76da226ec6dc6cbaf01f50a3be59 
+稳定地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/f66c388ab547bc7c7482c202c1fc7db65b9003d8 
+2026-07-15 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/06d7dd5861550261ac5b593430afea190dae36e1 
+2026-07-15 更新 IPTV 工具： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/3bef88ce6d26c14ce714b6ed09d569a7ef120d10 
+2026-07-15 更新世界各地 IPTV 频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/df6f3e1e2a2d298d76add5b0bd31c5f03df30d92 
+2026-07-15 更新全国可用直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/415451a9995485334ce866c1cccab9a23354ac60 
+新增各地运营商的 IPTV 地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/f121d3a62ad93fbca09fd6d860a564b5c9476502 
+插件推荐： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/fb37f756574fc401812426cdd3930b2c688d9ce8 
+视频教程增加： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d582549955e29dfa25a70723910801e49c95376f 
+咪咕源失效： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d2eca26893a1381107cc974556c913939f96b912 
+2026-07-15 更新各地运营商 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/3987ec7d46ad689b50a0576a58c2039ca33d69b5 
+2026-07-15 更新台湾香港海外直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/085efe6f1fcefaa25df5903f063ce355c18ce11d 
+新增辽宁广电直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d98d6f19523bc5d4ca4537c0bba52505c2607ff4 
+新增江西广电直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/f1ac2da0943dbb8f72929737107bae39d5d94e2f 
+新增湖北广电直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/5d0d47bef373cf06948eedd3d81d87df74ea3dd6 
+新增中国广电 cctv + 卫视直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/cfa80a50598a1a3f69b0a19bac06122d58517768 
+新增辽宁电信 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6a3863ed8f1da40ac9c473a8f1ad836a4603601e 
+2026-07-15 更新台湾香港海外直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/8eef7f9e1f4bea4cfd2c652ca2fa430643f367db 
+新增辽宁移动直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6b5df44618a9c1c36d4fb2b56e42fad8d1be3c91 
+新增浙江杭州华数 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6b0bb2a6ef308c39ff08225f365268f044e2890d 
+新增广东联通 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/7f9c6096e1560d694783e7955a28b7b85ad16b1a 
+新增四川广电 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/42ee694843d27313fcfd035b992759a1c8797e11 
+新增云南电信 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/1b3be38bef936078770c2225e9f86afdc508a1f8 
+2026-07-15 更新国内电视台直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/ebe4dea9839fde40a5ea9ef104e6cd62fa202e10 
+新增福建电信 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/da09ff466a1fc8ca6d5b1441c3d630d18ccf7016 
+新增天途云 CCTV + 卫视： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/68561312a5527f269d9f366f8d3ceec9dec766db 
+新增腾讯云 CCTV + 卫视： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/759e06eebb95fec51438d65f45fac42c06a85148 
+新增 CCTV 付费频道直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/31b9dfe75d3fa7c96580b1caae4b44786b46f761 
+新增广播电台： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/694d76e193726b9686247e3677734bdb0805aeb5 
+2026-07-15 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/65dc666c03cb368b45d40b455c3e75f2ce44b86b 
+2026-07-15 更新 台湾香港海外直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/160f8cf093d66945c6bc40aa2568e25448b506b8 
+2026-07-15 更新 国内电视台直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/69df8b2c45b70286964f9411ea48ac5e673877cb 
+国家直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b3efa71c14b2cdd3c087489f3bf748eea80b2793 
+直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/2c49e58cff00360945333fa8fe13fa65420f2610 
+影视剧场： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/48b7bc422f416b41e25f8eff7885d01881b5ada1 
+台湾香港澳门： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b3bc95e342ccaab4f70ff1e6a2b5864614640ab0 
+国外电视台： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/5b3da52493a836fd3bc5a182a34747dfc427b4e8 
+国内电视台： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/3ea4dad36ad1405b6f48167557dc451ee726ece4 
+更早期 2026-07-15 更新： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/33a2a452d1d2c19a2cc9e0982be0f3922136af12 
+各地运营商 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/7d34ee049eea91f18868e7d7b256f5126456a635 
+全国可用直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/88b60942ac44b6e3064453639b62a432d29a5834 
+2026-07-15 更新： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/2ab80ac9b75d2c8de06b4a8880ff3282010e3d66 
+赞助者： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/ad217a7a17ce0d3b23193ec4505f131fb5410221 
+文章： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6e069b532b1f7fdf81b9295d46fb1f3b8028ddc5 
+视频教程： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6819e10be4e9bff6e51f616540db21c271e5b6ae 
+插件： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/5073de6fa311e1f0099f7c0d58254c278dfc37cd 
+工具： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b612ee3f3f952541cb98eee286251f2b78783ee3 
+URL： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/66c18203a438afb756e76aa765813cca971e6424 
+目录： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d16ad94344bf467e8cdc5aa65b6e904d574d2604 
+喀麦隆直播电视频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/ac84061ca5c1a3f3c917045f6255cacb49f6397c 
+阿富汗直播电视频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/a5743c21ad226c86dc636aec27122acd50f3cd2c 
+海地的直播频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/3eb609c7a2a10b33b4e7e699eecd880f8d873745 
+高棉直播和泰国电视，电影和电视剧： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/0ac12d9806dfe4f746a73ba089f6674fc258f19f 
+厄瓜多尔直播频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/c43d0e306ab2b1eb7efbb17cc479041409740736 
+玻利维亚直播频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b254c118273543fc801a6a03ebf64eb740c67d8a 
+萨尔瓦多直播频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/269fa8e9d52b3e21b7c8746ff77166fd4fa7a587 
+危地马拉直播频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/746e9d3b18986d99e76b84c1ae1714b8737b6e9f 
+洪都拉斯直播频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/ed1f4796ad57a51be5d2c82250c7ed23b7374e14 
+多米尼加共和国直播频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/070b4e66cbfb1a23c851a0ff6902698a4b781880 
+哥斯达黎加直播频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/085bf8e970ebab05d44b182db66b679b1b8bb88b 
+来自世界各地的个电视频道和个摄像机： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/5c291d63912a0882bc69bb73a7a331961e0cbe1d 
+免费数据库： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/a5f48b4144b57b5147ee150bf6bb55531f402146 
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/29399fb0e0ba4c6e0f995c415c1efe2e517c8315 
+超过个国家地区的个高清频道和： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/ed7012a8e1b78e92b7e54a0049a053039b67016d 
+超过个直播电视频道影视节目： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/c829aa44cf6caceffde077eba57e0158026bfed1 
+提供商列表： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/16c1fe1ac9b9fdc4adfbd4a56ac4551f3f4946e6 
+提供者： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/5ee2ed6520da0f1b98e9bea5345acf801ce6d07e 
+客户端服务器媒体播放器： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/8cb88b42a94821686b9a3ce6bc55ca440caca868 
+支持播放列表文件： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/76836c9375422496ecd82132f5855b607a0e9d5c 
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/4f25f4e6c40a066f790f8b0c733adf57906cff44 
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/e4f9d8e4390e6f6efd1e2cfa50d909eb93e016f2 
+点 即可： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/20391c051924c5aab9850b1edc0c9fb3e4d6af3c 
+第三行不用管： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/51c9631c2195e5ddb31db4259709baa1bf3706b1 
+第二行输入上面给你的地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6dea00b0b8280a061276dde7d7421fbcfb69e393 
+第一行随意输入一个名字： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b1374c504e27546cc88198784bd64e0d69b1141c 
+选择 远程播放列表文件： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d54f7ef810918ce8b254a27edf9f0cb511920bb1 
+打开 点击 号： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/2df42405770dd26076525897ddd5b5d2b56886a4 
+食用指南： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/68b53f7d9bd41aaf55619ced761e3e737f278d8e 
+适用于 macOS 的现代媒体播放器： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/f425020780c0504e4b1d8901d13c1f9b3c0f9c76 
+直播电视和广播客户端插件： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/14dc83101f2ab7328acdc3fd7bf8ed090b2a7f57 
+具有库支持的免费跨平台媒体播放器： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/664a1d901af76140134ebf399a20284cb1c9b169 
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/fe4006d9f956c74c1a2e9a46109ac4cadbf2ec84 
+支持 IPTV 流的应用程序： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/fe4d743b85871ab06e5b363769d80c6855d6cc38 
+工具： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b740a21f368ed735891425107d0767ee2adefb71 
+轮播华数求索爱奇艺 2026-07-15 更新： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/ea92765772361377c501dd0dfed15e5df4236625 
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/e44f0a2f7ad8bc175b5b7c801ac9969e991325e8 
+台湾香港海外直播源 2026-07-15 更新： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b83b9db896ce4e914d5ceabe7a79b46ef72efff0 
+各大卫视、上千个地方台： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/66f55abca1d080313ad92d0c2cedc50e1484b179 
+国内电视台直播源 2026-07-15 更新： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/f7d148b5a6881897588614da1aba343720819102 
+卫视腾讯云： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/f2c5655c4d0b05dafa9ccbc599cffbe49e5f8fb3 
+卫视平顶山学院教育网： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/828be5effd00b5bc022190d9419469ba4ccb20c0 
+卫视天途云： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/8df1d40b82244bf59c21c83a7e9dbf3a6857d48d 
+卫视地方台安徽农大： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/10c877b3cf1461f2f188fcf5d33977759fc72694 
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/75138cea916d70c3c1e6ee34bf6eda09b48fdda3 
+央视卫视广西移动直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/1504c06d8f1d30ef35ea9335e31668b4c62787df 
+付费频道直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/4259bdbf70e45ad784509320a369482c03f0c4ab 
+国家直播源多个全部有效： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/2e858691284c99e2e1bcb67ca2692389ca7b29cd 
+直播源全部有效： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/16c6b372610feeca34f94dc5b13a56ede61dfe0f 
+全部有效： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/e796d7f320967491222bff2ecea58702a930ae37 
+直播源全部有效老电脑别用： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/089da03587265a829ce5e96cd6c20b20bdbbe52b 
+影视剧场全部流畅： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/5648f51d526c947ad66e152331bda799b9edf534 
+全部可用： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/dd24fb2104b729b0494289edec67e29331d4d861 
+我的播放源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/66a820f57fd375b08ab3902185ec544ad57608fc 
+其他直播源 不确定有效性： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/995f0e4de334779fe42a36607460294e9d9c680d 
+新疆电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6b65e10ead7eb250e4ea14de5e01ca92517d921e 
+新疆 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/a5231b22e2579fe507f2bd1bb790427f9c7a1b76 
+内蒙古联通 udp 组播下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/3a70c8e71e5f058d9ef915589ff4415154fc0e16 
+内蒙古联通 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6b5df44618a9c1c36d4fb2b56e42fad8d1be3c91 
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6b0bb2a6ef308c39ff08225f365268f044e2890d 
+内蒙古电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/7f9c6096e1560d694783e7955a28b7b85ad16b1a 
+内蒙古 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/62ab515270ff4e4be106b740109eee24486c3b16 
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/5450e72e9754742c80698fcdd6e269ac4ce7f679 
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/22a868373b1a9a333434a9ec3f3c9279d8a7c963 
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/854b0e50184f2d025488dc5b3de8a5af20087216 
+黑龙江移动 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/0195a44217d62c02a19a15ca258272a8c3d820ad 
+黑龙江 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/ae029911a52931064a20c0a7c8f1a986d53de408 
+吉林电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/f1ff4541a39940ccede74492131ea621b3e0ce6a 
+吉林 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/788a0cfe61ec9e1586fc554437d41e221c9ab6ae 
+辽宁移动直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d61a69e3ce906e2da72ce9c00b49fc26c061aa8f 
+辽宁电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/da2327a9e79e393c6d0b3b762ce34b3b9a1ec0c0 
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/8d16e5a4eaf6a2672f6f8a80c9e29c77c561a9dc 
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/f493c3a3ccbd395494897567eec136cf13ef7e87 
+辽宁联通 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/785c9a4dcb2cfc64c3fa2d13685455a2ca342dd7 
+辽宁 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/f25b94479c741e00f794ad1c6bff6c1930cfb8c9 
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/eabc09b687dddffeccc164f077f69ec07fbee296 
+浙江电信 IPTV 组播直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/a9f8de61f073fe8ff150ca4e2e7160311d7fb268 
+浙江联通 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b96909222255752adcc492d0a40f8555dd9c1d33 
+浙江移动 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/c28996bd20cfb9f0a8a6873fc16c14cf05406f62 
+浙江 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/0fee25e7a1b870f35452abde0dda4664f98a8ec6 
+江西联通 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/845fa78493fee5bc103cc571a51167366694f9f1 
+江西电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6e72d0a08180c6c6b404a634fb558777714d35df 
+江西电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/42c325aa0003d20b0dd0880a7b683ea993afac86 
+江西移动 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/bd8bfcf9816d28d8524530cf3067e5df7989a2c1 
+江西 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/6fa9afe04e82874c71f4c79d53c3df77ea69f07e 
+江苏移动 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/1d1029e0bcc464606c223f598488aba007c5452c 
+江苏电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/394b203d37c93c4bf4c673abb759c50132b7193c 
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/694de5e8b9bbe791605e86b5c2b597263bb5f698 
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/d437ceb3cf968679a5e2047e4ee569a1471d8a44 
+江苏南京电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/76d9861e532dc38aca43e1905e6e34a988a63a2a 
+江苏电信 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/bd375e8f4ffe682b5ff3f2dbfb193f534c28bd99 
+江苏 IPTV 直播源： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/041bdae564bb8cf7ad5e230052c13844288c1757 
+安徽广电 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/712fff4396e5a829a213364c6800da212326219f 
+海南电信组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/c43d0e306ab2b1eb7efbb17cc479041409740736 
+海南联通组播 IPTV 直播源下载地址： https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/dc115f346dbd31219c9ef395c05728425b477d62 
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年07月29日00时09分27秒
+来源：https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/54cae11003ee9f0286b08443850d4635ca25c7b0 
+来源：https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/b201bf5d851269402f4b8256bc2fa3e9b340b3c5 
+来源：https://github.com/vectorwindaxle/trnfvn-DOQRJE/commit/63173f0f9cdb788ee51245f77fd9121474ea4801 
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年07月29日，00时09分27秒
+sdf34erfsdf0728.1
